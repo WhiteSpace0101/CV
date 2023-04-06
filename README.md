@@ -1,2 +1,2 @@
 # CV
-Personal Website (in progess
+Personal Website (in progess)
